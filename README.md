@@ -1,1 +1,1 @@
-https://MarianaMrkvanova.github.io/Projekt/
+MarianaMrkvanova.github.io/Projekt/
